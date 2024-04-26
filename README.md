@@ -1,0 +1,1 @@
+# strikers-analysis-by-league
